@@ -8,6 +8,12 @@ i also love my friends, and I'm really interested in Roblox stuff n fandoms I'm 
   
 <p align="center">remember to be yourself! no one's gonna stop ya
 
+<img width="368" height="133" alt="Image" src="https://github.com/user-attachments/assets/b6674bee-9c81-4226-be11-dc5646feb91a" />
+
+@tuffkey
+@5spoke
+@squiddx
+
 
 
 
