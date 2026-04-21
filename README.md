@@ -17,6 +17,10 @@ i also love my friends, and I'm really interested in Roblox stuff n fandoms I'm 
 [Natalan](https://github.com/iRoierr) ,
 [Luis](https://github.com/wifiesss) ,
 
+<img width="735" height="677" alt="Image" src="https://github.com/user-attachments/assets/d7ffdc35-8fa1-4ec2-b3cd-8aef9239c8ce" />
+
+..........   [infected](https://github.com/Wooden-Mannequin) ......................<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1f1cbbbd-7b30-449f-9525-246215127aef" /> ........ [Lampert](https://github.com/tuffkey) ..
+
 
 
 
