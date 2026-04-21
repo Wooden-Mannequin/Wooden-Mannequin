@@ -11,9 +11,9 @@ i also love my friends, and I'm really interested in Roblox stuff n fandoms I'm 
 <img width="368" height="133" alt="Image" src="https://github.com/user-attachments/assets/b6674bee-9c81-4226-be11-dc5646feb91a" />
 
 [Tuffkey](https://github.com/tuffkey)
-[Dagasi](https://github.com/tuffkey)
-[Luis](https://github.com/tuffkey)
-[Shawn](https://github.com/tuffkey)
+[Dagasi](https://github.com/5poke)
+[Stan](https://github.com/freehounlover)
+[Shawn](https://github.com/Dol9hinState)
 
 
 
