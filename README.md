@@ -1,4 +1,4 @@
-[My boyfriend !](https://www.patreon.com/profile/creators?u=203745126) ♥♥
+[My boyfriend !](https://www.patreon.com/profile/creators?u=203745126) ♥♥ CHECK HIM OUTT < 3
 
 <img width="800" height="800" alt="Image" src="https://github.com/user-attachments/assets/dcbd48c4-5d23-403a-b41c-5b821a57fa7c" />
 
