@@ -1,6 +1,8 @@
+[My boyfriend !](https://www.patreon.com/profile/creators?u=203745126) ♥♥
+
 <img width="800" height="800" alt="Image" src="https://github.com/user-attachments/assets/dcbd48c4-5d23-403a-b41c-5b821a57fa7c" />
 
-<img width="1367" height="157" alt="Image" src="https://github.com/user-attachments/assets/e9659722-7bb9-48f3-8a72-a9405a2537ad"/> <p align="center">he & him , int is free ! Single . <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/5c3d416a-8dff-4cb2-a6bc-f03b30506911" />
+<img width="1367" height="157" alt="Image" src="https://github.com/user-attachments/assets/e9659722-7bb9-48f3-8a72-a9405a2537ad"/> <p align="center">he & him , int is free ! Taken . <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/5c3d416a-8dff-4cb2-a6bc-f03b30506911" />
 
 <p align="left"> cool gamer boy !! loves roblox and food ♥ .
 <p align="center">
